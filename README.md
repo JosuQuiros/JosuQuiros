@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JosuQuiros
-- 👀 I’m interested in Software development and everything related to tecnology and why not games :p 
+- 👀 I’m interested in Software development and everything related to tecnology. 
 - 🌱 I’m currently studying software engineering at TEC
 - 💞️ I’m looking to collaborate on everything to be honest, I want to learn everything and meet new people ;)
 - 📫 How to reach me you can text me to josueqgqg@gmail.com
