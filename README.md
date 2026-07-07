@@ -114,8 +114,8 @@ Software Engineering:
 
 ### Let's Connect
 
-* GitHub: https://github.com/YOUR_USERNAME
-* LinkedIn: https://linkedin.com/in/YOUR_USERNAME
+* GitHub: https://github.com/JosuQuiros
+* LinkedIn: https://linkedin.com/in/Josué_Quirós_González
 
 ---
 
